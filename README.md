@@ -1,1 +1,1 @@
-# rsschool-cv
+https://farilam.github.io/rsschool-cv/cv
